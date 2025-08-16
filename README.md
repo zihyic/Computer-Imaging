@@ -1,1 +1,1 @@
-# Computer-Imaging
+# Computer-Photography
